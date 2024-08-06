@@ -1,6 +1,6 @@
 # 迷途云官网地址
 
-最新地址：[110988.xyz](https://cfcdn.110988.xyz/#/register?code=CR7FGSCr)
+最新地址：[110988.xyz](https://迷途云.xyz/#/login?code=CR7FGSCr)
 
 ## 迷途云介绍
 
